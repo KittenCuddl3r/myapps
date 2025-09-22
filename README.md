@@ -1,0 +1,1 @@
+Hello everything is intended for educational purposes and learning, I will update this profile with stuff I make to learn.
